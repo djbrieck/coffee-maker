@@ -8,7 +8,7 @@
 - Nail or Punch
 
 ## Instructions
-1. Assemble Laboratory stand as directed by the manufacture. Use pliars to securely tighten the pole, so it does not turn in the base.
+1. Assemble Laboratory stand as directed by the manufacture. Use pliers to securely tighten the pole, so it does not turn in the base.
 
 2. Attach 4" ring stand to the pole and adjust to the height of your preferred coffee collection vessel.
 
